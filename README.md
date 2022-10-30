@@ -1,4 +1,4 @@
-👋 Olá, sou @Luiz-Eduardo-Kuster-de-Azevedo
+👋 Olá, sou @luiz-eduardo-collab
 👀 tenho interesse no programa
 🌱 atualmente estou aprendendo a programar
 💞️ Estou procurando colaborar com meus alunos e as webconferências em suporte na UEPG
